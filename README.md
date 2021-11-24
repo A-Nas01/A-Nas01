@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @A-Nas01
-- 👀 I’m interested in writing
+- 👀 I’m interested in writing, data entry
 - 🌱 I’m currently learning MATLAB
 - 💞️ I’m looking to collaborate on new projects
 - 📫 How to reach me armeennas01@gmail.com
